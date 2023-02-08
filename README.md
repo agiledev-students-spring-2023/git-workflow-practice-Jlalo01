@@ -2,3 +2,4 @@
 ## Link to the article
 https://www.theverge.com/2023/2/8/23591722/nintendo-switch-online-game-boy-advance-games-expansion-pack
 ### Comments
+I'm not sure if this counts, but I do consider this an incredible advance on software development. It's a concept I have thought of myself for a long time. This incredible old games, specially now that times have become increasingly nostalgic, were made to be small and not take too much processing power. One would think that it would be easy to incorporte those old games into the new era of gaming, especially since I'm pretty sure there is enough community and market for them. It is, of course finaly now that we have official licensing for this games, and they are being incorporated into the new world of faster gaming platforms. I have not done it myself, so I'm not sure how extensive the work for the incorporation must be, but I do consider the feat increadible as a lover of this games... 
